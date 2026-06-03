@@ -1,4 +1,4 @@
-# 
+# Novo dex front-running bot plugins para Mac OS | Elite dex front-running bot plugins para PC Windows. Com integração de API e arbitragem estatística — otimizado para máximo desempenho em cada plataforma.
 
 
 
